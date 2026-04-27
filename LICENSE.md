@@ -1,4 +1,4 @@
-
+advanced steal the brainrot base Script is the best steal the brainrot base Script, featuring infinite resources and speed. Safe and powerful for all
 
 
 
